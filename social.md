@@ -1,0 +1,1 @@
+Nuk jam aktiv ne Socialmedia.
